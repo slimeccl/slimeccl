@@ -2,7 +2,7 @@
 ㅤ<br>
 ㅤ<br>
 ㅤ<br>
-<img src="https://api.visitorbadge.io/api/visitors?path=slimeccl&label=slimers&labelColor=000000&countColor=000000&style=flat"> <br>
+<img src="https://api.visitorbadge.io/api/visitors?path=slimeccl&label=slimers&labelColor=565f21&countColor=565f21&style=flat"> <br>
 ㅤ<br>
 black mold and jelly sandwich<br>
 charlie or evan,ㅤhe/him<br>
