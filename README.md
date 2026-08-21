@@ -16,5 +16,10 @@ $\color{#88b524}{\textsf{charlie, slime}}$ <sup>$\color{#565f21}{\textsf{or}}$</
 <p align="center">
 will be working on this repository... eventually <br>
 ㅤ<br>
+NO i don't have DID #stoptrying2diagnoseme<br>
+i'm just severely autistic, like making 7 billion githubs, go by 11 billion names,<br>
+and whatever favorite characters i currently fixate on affect how i act.<br>
+ok? ok. thanks <br>
+ㅤ<br>
 ㅤ<br>
 ㅤ<br>
