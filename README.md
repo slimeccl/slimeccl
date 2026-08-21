@@ -16,7 +16,7 @@ $\color{#88b524}{\textsf{charlie, slime}}$ <sup>$\color{#565f21}{\textsf{or}}$</
 <p align="center">
 <sub>will be working on this readme... eventually </sub><br>
 ㅤ<br>
-<sub>NO i don't have DID #stoptrying2diagnoseme<br>
+<sub>NO i don't have DID, nor am i trying to make it seem that way #stoptrying2diagnoseme<br>
 i'm just insanely autistic, like making 7 billion githubs, go by 11 billion names,<br>
 and whatever favorite characters i currently fixate on affect how i act.<br>
 ok? ok. thanks </sub><br>
